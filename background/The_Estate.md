@@ -4,7 +4,10 @@
 ---
 
 ## Name
-*To be determined.* Estates of this kind were often known by a poetic name, or simply by the family name. The family name is also to be determined.
+**Estate name:** 霧の上 *Kiri no Ue* — "above the mist"
+**Family name:** 霧山 *Kiriyama* — *mist* + *mountain*
+
+The estate name and family name share the character 霧 (*kiri*, mist) — not by design exactly, but naturally, the way a family and their place become the same thing over generations.
 
 ---
 

@@ -9,15 +9,20 @@
 ---
 
 ### Setting
-**Period:** Middle Edo, approximately 1680–1720
-**Location:** A rural estate, exact region to be determined
-**Atmosphere:** Ordered and constrained. Quiet. Ancient in feeling.
+**Period:** Middle Edo, approximately 1688–1720 — overlapping with the Genroku era, Japan's cultural peak
+**Location:** 霧の上 *Kiri no Ue* ("above the mist") — the Kiriyama family estate, mountain country of central Honshū, old province of Shinano (modern Nagano prefecture)
+**Atmosphere:** Ordered and constrained. Quiet. Ancient in feeling. Mist is a recurring presence — erasing boundaries, suspending the ordinary world.
 
 ---
 
-### The Estate
-*To be developed.*
-The family maintains a shrine to an old protector — an Inari shrine with a long history, predating the current household's memory. The cultivated garden gives way at some point to wilder ground. The shrine is near this boundary.
+### The Estate — 霧の上 Kiri no Ue
+See separate Estate document for full detail. Summary:
+- Situated on a mountain slope above a mist-filled valley
+- Old cryptomeria forest behind; rice paddies and farming villages below, largely invisible in morning mist
+- The Kiriyama family — 霧山, *mist* + *mountain* — have occupied this estate for generations
+- The estate name and family name share the character 霧 (*kiri*, mist), the way a family and their place become the same thing over time
+- The family maintains an ancient Inari shrine in the forest above the garden — older than the house, older than anyone's clear memory
+- **Mist** is central to the story's atmosphere — it erases boundaries, creates privacy, belongs to the threshold times of dawn and certain autumn evenings
 
 ---
 
@@ -68,8 +73,7 @@ The family maintains a shrine to an old protector — an Inari shrine with a lon
 ---
 
 ### Open Questions
-- The estate: region, layout, physical description
 - Yukino's true name
 - The shape of the story: how they meet, what passes between them, how it ends
-- Supporting characters: family members, servants, tutors
+- Supporting characters: family members, servants, tutors — to be developed
 
