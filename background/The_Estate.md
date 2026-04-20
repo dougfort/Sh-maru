@@ -144,13 +144,26 @@ On the practical side of the estate — away from the garden and the shrine axis
 
 ## The Household
 
-*To be developed in detail — placeholder notes only.*
+### 霧山 Ume — Shūmaru's mother
+梅 — plum blossom. The estate's real center of gravity during her husband's absences. Warm but not intrusive — she gives Shūmaru room while watching over him carefully. The one adult who comes closest to seeing him clearly. A quiet contrast to Yukino: where Yukino is elusive and dissolving as snow, Ume is present and insistent as the plum blossom that pushes through winter cold.
 
-- **Shūmaru's father** — high-ranking, likely periodically absent under the sankin-kōtai system (alternating between estate and Edo). A formal, correct man.
-- **Shūmaru's mother** — present, managing the household. Her relationship with Shūmaru is warm but conducted within the forms of the household.
-- **Servants** — a substantial household staff. Some families have been in service for generations.
-- **A tutor** — a Confucian scholar, possibly living in the household. Shūmaru's primary educator.
-- **A gardener** — old, mostly silent. Perhaps the person on the estate most comfortable with the shrine's proximity.
+### Shūmaru's father
+*Name to be determined.* High-ranking, periodically absent under the sankin-kōtai system. A formal, correct man whose attention is organized around Mitsumaru as his culture dictates. Not unkind — simply a man whose instruments cannot measure what Shūmaru is. Shūmaru observes him without resentment.
+
+### 光丸 Mitsumaru — the elder brother
+Five years older than Shūmaru — thirteen or fourteen at the story's opening. The heir, named for light and radiance, moving with the confidence of someone for whom the world is arranged. Oblivious to Shūmaru's inner world, but warm and generous in direct contact. Already being formed for adult obligation — formal occasions, administration, the duties of the heir. Has never gone to the shrine at dawn. It has never occurred to him.
+
+### The tutor
+*To be developed.* A Confucian scholar, possibly living in the household. Shūmaru's primary educator. See upcoming character development.
+
+### The servants
+A substantial household staff, some families having served the Kiriyama for generations. To be developed as needed.
+
+### The gardener
+Old, mostly silent. Perhaps the person on the estate most comfortable near the shrine. To be developed.
+
+### The head groom and stable staff
+Two or three grooms, possibly including a boy of lower class near Shūmaru's age. The stables are one of the few places on the estate without ceremony.
 
 ---
 
