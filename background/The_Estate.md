@@ -125,6 +125,23 @@ The estate's boundary is loosely defined here. The forest continues up the mount
 
 ---
 
+### 7. The Stables
+On the practical side of the estate — away from the garden and the shrine axis, closer to the service buildings. A working place rather than a contemplative one.
+
+- Four to six horses for a family of this rank — riding horses for the family, pack and travel horses for the retinue
+- Built of heavy timber, low-roofed, with thick walls against the mountain winters
+- Warm year-round from the animals' heat — noticeably so in winter, stepping in from the cold
+- The smells of hay, horse, leather, and woodsmoke from the grooms' small brazier
+- Tack hanging on wooden pegs — bridles, saddles, the equipment of *bajutsu*
+
+**Shūmaru and the stables:** He is beginning to learn horsemanship at the story's opening — eight or nine is the right age for this to start. His lessons take place here, under the eye of the head groom. But he also comes here outside of lessons. The horses are large and warm and entirely without ceremony. Nobody expects him to bow correctly in the stables.
+
+**The grooms:** Two or three men, possibly a boy of lower class near Shūmaru's age who assists them. They occupy a different social world — less formal, more direct. Shūmaru observes them with interest. He does not quite know how to talk to them, but he listens to what they say among themselves.
+
+**One horse in particular:** To be determined — but a boy like Shūmaru would have a particular relationship with one animal. Horses, like the shrine, do not require him to perform.
+
+---
+
 ## The Household
 
 *To be developed in detail — placeholder notes only.*
