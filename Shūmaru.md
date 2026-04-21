@@ -72,11 +72,13 @@ See separate Estate document for full detail. Summary:
 - Apparently aristocratic in bearing and education
 - Her family's status is vague, slightly out of focus — not quite placeable
 - Nobody besides Shūmaru knows of her existence
-- May or may not be the kitsune spirit of the family shrine
+- May or may not be the kitsune spirit of the family shrine — or of the stone circle, which may be older
 - Her name 雪乃 (*snow* + *of*) is plausible as a human name — its very normality is a kind of concealment
 - She may have a true name, older and more charged, known only to Shūmaru
   - This true name is not yet determined
   - The moment she tells him, if she does, will be significant
+- **First appearance:** Shūmaru sees her through morning mist, dancing **神楽 *kagura*** among the stones of the Jōmon circle — alone, before dawn, performing an offering to whatever inhabits that place. She dances without music, slow in places and suddenly quick, her arms carrying gestures whose meaning he cannot read but whose weight he feels. When the dance ends she speaks to him without turning. She knew he was there. His arrival was not a surprise.
+- **What she said first** is not yet determined — but it will matter enormously
 
 #### 玄之介 Gen'nosuke — Shūmaru's tutor
 *See separate character sheet for full detail.*
@@ -98,11 +100,24 @@ See separate Estate document for full detail. Summary:
 
 ### Supernatural Framework
 - The family shrine is dedicated to an ancient protector — an Inari fox spirit
+- Above the shrine, deeper in the forest, lies the Jōmon stone circle — older than the shrine, older than any name currently given to what dwells there
 - Within the period's worldview, Kami and spirits are not supernatural — they are part of the fabric of the world
 - Shūmaru does not think of himself as having a special gift. He simply notices things.
 - Yukino's nature is **never confirmed**. The ambiguity is the heart of the story.
-- Possible fox tells: a reflection that doesn't match, unusual stillness, knowledge she shouldn't possess — scattered lightly, never conclusive
-- Gen'nosuke's scholarship suggests the shrine spirit may be older and stranger than the Inari framework implies
+- The fox: real Japanese red foxes (*Vulpes vulpes japonica*) inhabit this mountain forest. Shūmaru followed one to the stone circle. He sometimes sees a fox at the clearing's edge. Whether it is always an animal he cannot say.
+- Possible fox tells for Yukino: a reflection that doesn't match, unusual stillness, knowledge she shouldn't possess, the fact that she was dancing kagura alone at the stones at dawn — scattered lightly, never conclusive
+- Gen'nosuke's scholarship suggests the shrine spirit may be older and stranger than the Inari framework implies — and his dead teacher's notes reference the stone circle site, which he has not yet found
+- The stone circle's *shinki* is distinct from the shrine's: older, less directed, not protective of anything in particular. Simply present, the way the mountain is present.
+
+---
+
+### The Forest Locations
+*See separate Forest and Stone Circle document for full detail.*
+- The shrine is the family's sanctioned relationship with the spirit world — named, maintained, protective
+- The stone circle is something prior to all of that — Jōmon, unnamed, connected to whatever was here before Inari
+- Shūmaru found the circle by following a fox; Gen'nosuke has been looking for it from the wrong direction
+- Yukino first appears at the circle, dancing kagura through morning mist
+- The circle is known to nobody else
 
 ---
 
@@ -113,14 +128,17 @@ See separate Estate document for full detail. Summary:
 - The supernatural is ambient, not dramatic
 - Shūmaru's perspective is the only perspective we fully inhabit
 - Mist as recurring motif — erasing boundaries, suspending the ordinary world
+- The fox as recurring presence — real and possibly more than real, never resolved
 
 ---
 
 ### Open Questions
 - Yukino's true name
-- The shape of the story: how they meet, what passes between them, how it ends
+- What Yukino says first, without turning, when Shūmaru sees her dancing
+- The shape of the story: what passes between them across the seasons, how it ends
 - The father's name
 - The gardener — needs development; potentially significant
-- The Daruma figure's eyes — one painted or both? A detail to decide when needed
+- The Daruma figure's eyes — one painted or both?
+- Whether the shrine spirit and the stone circle spirit are the same, related, or entirely distinct
 
 
