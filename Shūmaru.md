@@ -78,6 +78,22 @@ See separate Estate document for full detail. Summary:
   - This true name is not yet determined
   - The moment she tells him, if she does, will be significant
 
+#### 玄之介 Gen'nosuke — Shūmaru's tutor
+*See separate character sheet for full detail.*
+- Formal name: 玄之介 Gen'nosuke. Scholarly pseudonym: 静庵 Seian — "the still hermitage"
+- Late forties. Originally from a minor samurai family local to this mountain region.
+- Kyoto-educated — deep in the Confucian classics, formally trained in Zen at Daitoku-ji monastery
+- Drawn to Kiri no Ue by his dead teacher's unfinished investigation of the ancient shrine
+- Secretly engaged with deep Shinto scholarship and early Kokugaku — heterodox, quietly dangerous
+- Believes the Kiriyama shrine preserves something older than the Inari tradition that now frames it
+- Quietly warm, intellectually demanding with Shūmaru — gives the boy room, does not condescend
+- Occasionally offers Shūmaru kōans — Zen paradoxes — and watches carefully how the boy receives them
+- Plays the shakuhachi in the evenings; Shūmaru has heard it from his room and said nothing
+- Maintains a spare Zen altar in his quarters: a worn Daruma figure, a brushed ensō, a ceramic incense burner
+- The smell of his morning incense — sandalwood or jinkō — reaches the corridor; Shūmaru knows from it whether Gen'nosuke has risen
+- The one adult who might eventually understand what Shūmaru has found — but much stands between them yet
+- Known to the gardener as someone who visits the shrine
+
 ---
 
 ### Supernatural Framework
@@ -86,20 +102,25 @@ See separate Estate document for full detail. Summary:
 - Shūmaru does not think of himself as having a special gift. He simply notices things.
 - Yukino's nature is **never confirmed**. The ambiguity is the heart of the story.
 - Possible fox tells: a reflection that doesn't match, unusual stillness, knowledge she shouldn't possess — scattered lightly, never conclusive
+- Gen'nosuke's scholarship suggests the shrine spirit may be older and stranger than the Inari framework implies
 
 ---
 
 ### Tone and Aesthetic
 - Quiet, interior, unhurried
-- Informed by the Japanese aesthetic concept of **ma** (間) — the power of what is left unsaid
+- Informed by the Japanese aesthetic concepts of **ma** (間 — the power of what is left unsaid), **wabi** (侘び — austere transient beauty), and **sabi** (寂び — the beauty of age and impermanence)
 - Little violence
 - The supernatural is ambient, not dramatic
 - Shūmaru's perspective is the only perspective we fully inhabit
+- Mist as recurring motif — erasing boundaries, suspending the ordinary world
 
 ---
 
 ### Open Questions
 - Yukino's true name
 - The shape of the story: how they meet, what passes between them, how it ends
-- Supporting characters: family members, servants, tutors — to be developed
+- The father's name
+- The gardener — needs development; potentially significant
+- The Daruma figure's eyes — one painted or both? A detail to decide when needed
+
 
