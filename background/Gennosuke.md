@@ -123,18 +123,47 @@ He does not yet know that Shūmaru may have already encountered an answer to thi
 
 ## Relationship to the Story's Central Mystery
 
-Gen'nosuke is the one adult in the story who might, eventually, be able to understand what Shūmaru has found. He has the scholarly framework, the spiritual practice, and the personal history to receive it.
+Gen'nosuke is the one adult in the story who might eventually be able to understand what Shūmaru has found. He has the scholarly framework, the spiritual practice, and the personal history to receive it.
 
-But several things stand between them:
-
+But several things stand between them at the story's opening:
 - He does not yet know Shūmaru visits the shrine
-- He does not know about Yukino
+- He does not know about Yukino, or Tsuta, or the stone circle
 - Shūmaru does not know about his teacher's notes, or the true nature of his scholarship
-- Both are private people who hold their interior lives carefully
+- Both are deeply private people who hold their interior lives carefully
 
-The movement toward each other — the slow recognition that they are investigating the same mystery from different directions — is one of the story's quiet arcs.
+### The Arc of Trust — How It Builds
 
-**What Gen'nosuke would do with the knowledge of Yukino, if he received it, is one of the story's open questions.**
+Trust between them builds in small stages over months, possibly a year or more. Neither rushes it. Neither could.
+
+**Stage one — the kōan.** Gen'nosuke offers a kōan and Shūmaru receives it in an unusual way — not struggling, simply going quiet and inward, as if listening for something. Gen'nosuke notices. He does not press or praise. But something shifts in how he looks at the boy.
+
+**Stage two — the question about the shrine.** Shūmaru asks something careful and oblique about the nature of the family shrine — phrased as innocent curiosity. Gen'nosuke answers with more depth than a simple tutor would. Another small shift. Shūmaru files this away.
+
+**Stage three — the fox.** Shūmaru mentions, with apparent casualness, that he has seen foxes on the path beyond the shrine. That one of them seemed to look back at him with unusual attention. He watches Gen'nosuke's face carefully when he says this. If Gen'nosuke dismisses it — kindly, reasonably — Shūmaru will close again, perhaps permanently on this subject. But Gen'nosuke goes still in the way that means he is taking something seriously. He asks one careful question rather than explaining. Shūmaru notices. Remembers.
+
+**Stage four — the clearing.** Shūmaru mentions, much later, that he has found a place in the forest he goes to sometimes. A clearing, with a stream. He offers nothing more. Gen'nosuke asks, very quietly, whether it is above the shrine. Shūmaru looks at him. Something passes between them.
+
+**Stage five — the stones.** He found some old stones in the clearing. Arranged in a way that seems deliberate. Very old. He watches Gen'nosuke's face again. Gen'nosuke's stillness becomes absolute. He does not yet show Shūmaru his teacher's notes. But he understands now that the boy has found what he has spent two years looking for, approaching from the wrong direction.
+
+**Stage six — Yukino.** She comes last. She is the most private thing, most at risk of being mishandled. Shūmaru does not mention her until the trust is deep enough to bear it — and perhaps not even then directly. Perhaps he says only that he once saw someone at the stone circle. A girl. Dancing. He doesn't say he has seen her many times. He doesn't say she speaks to him.
+
+Gen'nosuke receives this with complete stillness. Then, slowly and carefully, he begins to share what he knows — his dead teacher's notes, the tradition of kitsune taking multiple forms, the possibility that what inhabits the shrine is far older than its Inari name.
+
+And then he asks, quietly: *Have you seen anyone else near the shrine? An older woman, perhaps?*
+
+Shūmaru goes very still.
+
+That exchange — the tutor's scholarship and the boy's lived experience finding each other across the table — is one of the story's central human moments.
+
+### The Crucial Question
+
+When Gen'nosuke understands the full picture — the fox, Yukino, Tsuta, the stone circle, the three-form being of great age — his instinct will be scholarly. To document. To investigate. To complete his dead teacher's work. To go to the stone circle himself and see.
+
+But what Shūmaru has with this being is personal, fragile, and entirely outside the scholarly framework. If Gen'nosuke moves toward it as a scholar — if he tries to verify, to witness, to bring his categories to bear on it — something will be damaged or lost. The being chose Shūmaru for his *mushin* quality, his ability to be with uncertainty without grasping. A scholar grasps by nature.
+
+Whether Gen'nosuke understands this in time — whether the scholar in him can step back far enough to protect what the boy has — is one of the story's genuine tensions and perhaps its greatest test of Gen'nosuke's character.
+
+His Zen practice should prepare him for exactly this. The letting go. The empty hand. Whether it is enough is another question.
 
 ---
 

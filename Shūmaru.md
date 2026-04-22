@@ -98,6 +98,37 @@ See separate Estate document for full detail. Summary:
 
 ---
 
+#### 蔦 Tsuta — the old woman at the shrine
+*See also: The Kitsune document*
+- 蔦 *Tsuta* — ivy. Something that persists, woven into ancient places. Not her name — the name she offers to the human world in this form.
+- Old, genuinely old in appearance — perhaps seventy or more. Has been coming to the Kiriyama shrine since before anyone currently living can remember her not coming.
+- Known vaguely in the village as someone who has a relationship with the old places — not a priest, but someone people come to quietly for things they cannot bring to the official shrine
+- The gardener knows her, leaves the gate unlatched on certain mornings; neither has ever discussed this arrangement directly
+- Has watched Shūmaru since before he could walk the path alone — with full knowledge, in this form, of everything that passes between him and Yukino at the stone circle
+- Has never spoken directly to Shūmaru — he has only glimpsed her leaving the shrine, or heard the gardener's oblique references
+- **She is the same being as Yukino and the fox** — see The Kitsune document
+
+---
+
+### The Kitsune — Three Forms, One Being
+*See separate Kitsune document for full detail.*
+
+The being that inhabits the Kiriyama mountain is a **single ancient consciousness** moving between forms — not three entities, but one awareness, the way water moves between ice, water, and mist.
+
+- **The fox** — natural-appearing, wordless, moving through the forest on its own purposes. Led Shūmaru to the stone circle. Sometimes glimpsed between the stones. Not unaware.
+- **雪乃 Yukino** — the face turned toward Shūmaru. Approximately his age, playful, elusive. Belongs to the threshold times and the stone circle.
+- **蔦 Tsuta** — the face turned toward the human world's edge. Old, direct, known to the gardener and the village. Belongs to the shrine.
+
+Neither Yukino nor Tsuta is the being's true name. Its true name, if it has one, may be the *shinki* itself — the felt presence at the stone circle, older than language.
+
+**Why Shūmaru:** His *mushin* quality — perception without grasping, the ability to sit with uncertainty — may be what makes him able to bear the encounter. She may have been waiting for someone like him for a very long time.
+
+**What she wants:** Possibly recognition — to be seen fully, once, by a human being who can bear the full weight of what she is without flinching or grasping.
+
+**Gen'nosuke's role:** He will be the one to connect the three forms — through scholarship, through Shūmaru's slow carefully-offered pieces, through his dead teacher's notes. The fox. The clearing. The stones. The girl. The old woman. He will assemble it and understand. What he does with that understanding is one of the story's crucial questions.
+
+---
+
 ### Supernatural Framework
 - The family shrine is dedicated to an ancient protector — an Inari fox spirit
 - Above the shrine, deeper in the forest, lies the Jōmon stone circle — older than the shrine, older than any name currently given to what dwells there
@@ -133,12 +164,13 @@ See separate Estate document for full detail. Summary:
 ---
 
 ### Open Questions
-- Yukino's true name
+- Yukino's true name — or whether it can be spoken at all
 - What Yukino says first, without turning, when Shūmaru sees her dancing
-- The shape of the story: what passes between them across the seasons, how it ends
+- The shape of the story: what passes between Shūmaru and Yukino across the seasons, how it ends
 - The father's name
 - The gardener — needs development; potentially significant
 - The Daruma figure's eyes — one painted or both?
-- Whether the shrine spirit and the stone circle spirit are the same, related, or entirely distinct
+- Whether Gen'nosuke's scholar's instinct can step back far enough to protect what Shūmaru has
+- What recognition — if that is what she wants — looks like when it arrives
 
 
