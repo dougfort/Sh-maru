@@ -112,4 +112,22 @@ Whether he understands this in time — whether the scholar can step back far en
 
 ---
 
+## Role in the Story
+
+This document contains the full conception of the kitsune — all three forms, the complete understanding of its nature. The story itself uses far less of this.
+
+**In the story, the kitsune appears as:**
+- The fox — leading Shūmaru to the stone circle in spring
+- The figure in the mist — the glimpse at the midsummer solstice, dancing kagura in the circle
+
+**Yukino** as a developed character — playful, elusive, speaking to Shūmaru, returning across many visits — belongs to an earlier conception of the story. In the final shape, there is only the glimpse. The figure at the solstice is seen once, through mist, with enough uncertainty that Shūmaru can never be completely sure of what he saw. This is permanent and deliberate.
+
+**Tsuta** may appear as a background presence — a figure the gardener mentions, someone glimpsed leaving the shrine — but she does not need development unless the story requires her.
+
+**What the kitsune wants** is never known. The kami are incomprehensible to us. This is not a puzzle to be solved but the nature of the relationship between the human and the sacred.
+
+The three-form understanding in this document is background knowledge that informs the story's texture — particularly Gen'nosuke's scholarship — without needing to be fully present on the page.
+
+---
+
 *This document will be updated as the Shūmaru project develops.*
