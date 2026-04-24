@@ -34,7 +34,7 @@ Running underneath, quietly: a fox. A stone circle. A glimpse.
 
 **The arc:**
 
-**Spring** — the world waking. Shūmaru's year begins. The valley becomes visible as mist thins. The estate comes alive. His days resume their structured rhythm — lessons, martial training, the garden, the horses. He begins going beyond the shrine into the deeper forest, following his nature. A fox leads him to the stone circle. He recognizes it immediately as a place of *shinki* — sacred presence — older than the shrine below.
+**Spring** — the world waking. Shūmaru's year begins. The valley becomes visible as mist thins. The estate comes alive. His days resume their structured rhythm — lessons, martial training, the garden, the horses. On the spring equinox morning, going further into the forest than he has gone before, following the sound of the stream, he finds the stone circle. He recognizes it immediately as a place of *shinki* — sacred presence — older than the shrine below. He returns repeatedly through spring, telling no one.
 
 **Early summer** — the forest at its deepest green. Shūmaru returns repeatedly to the circle. Through his growing trust with Gen'nosuke, he shares the discovery — not as mystery, simply as a place he has found. Gen'nosuke gives him language: the kami, the old ways, the nature of sacred ground. Their relationship deepens around this shared attention to the spirit world, without either of them naming what it is becoming. Gen'nosuke recognizes the site from his dead teacher's notes, but keeps this to himself. He is finally close to what he has been looking for — and wise enough to move carefully.
 
@@ -157,10 +157,10 @@ He eventually finds the stone circle — after Shūmaru has left the poem and st
 Ancient — older than the shrine, older than the Inari tradition that frames it.
 
 In this story it appears as:
-- **The fox** — leading Shūmaru to the circle in spring
-- **The figure in the mist** — the glimpse at the solstice
+- **The fox** — glimpsed occasionally in the forest near the circle; possibly present on the winter solstice morning as Shūmaru descends after leaving the poem. One line, perhaps less. He notes it. He keeps walking.
+- **The figure in the mist** — the glimpse at the solstice, dancing kagura in the circle before dawn
 
-Whether the old woman Tsuta appears in the story at all is uncertain — perhaps only as a shadow the gardener occasionally mentions. She does not need development unless the story requires her.
+Shūmaru finds the stone circle himself, by following the sound of water. He needs no magical assistance. His quality of attention is what makes everything possible. The fox, when glimpsed, confirms something — but does not lead, does not guide, does not explain.
 
 **What the kitsune wants:** We will never know. The kami are incomprehensible to us. This is not a puzzle to be solved. It is the nature of the relationship between the human and the sacred.
 
@@ -197,8 +197,8 @@ Key seasonal moments to research and develop:
 - The gardener — how much he appears; whether he needs development
 - The poem — to be written at the story's end
 - Whether Tsuta appears at all, or only as background presence
-- The precise words of the figure at the solstice — if she speaks — which may never be determined
-- The specific rituals and seasonal events to be researched and woven into the year's texture
+- The fox at the ending — one line, perhaps less, on the winter solstice descent. Keep available.
+- The precise nature of the figure at the solstice — which may never be determined, and should not be
 
 ---
 

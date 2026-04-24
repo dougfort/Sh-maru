@@ -87,21 +87,19 @@ Occasionally, at the edge of vision, something moves between the stones. A shape
 
 ---
 
-## The Fox
+## Shūmaru's Discovery
 
-Shūmaru first found the clearing by following a fox.
+On the spring equinox morning, going further into the forest than he has gone before, Shūmaru follows the sound of the stream. He does not know the stream is there — he simply hears it, above him and to the left, and goes toward it. This is how he moves through the world: following what is present toward its source.
 
-He was on the path beyond the shrine — exploring, as he sometimes did in the early morning — when he saw it ahead of him in the trees. A Japanese red fox (*Vulpes vulpes japonica*), native to these mountain forests, entirely real in the biological sense. Reddish-brown, lean, pausing to look back at him before moving on.
+He finds the clearing, and the stone circle, entirely by himself.
 
-He followed. The fox moved without hurry, glancing back at intervals, as if aware of him and not particularly concerned. It led him — or he followed it, which may not be the same thing — up the slope and to the clearing.
+He needs no guide. His quality of attention is the thing that is unusual. The place was always there. He simply had not yet followed the water far enough to find it.
 
-By the time he reached the stream, the fox was gone.
+He returns repeatedly through spring and into summer, telling no one. It is his most private place — more private even than the shrine, which belongs to the family. The circle belongs to no one, which means it can belong to him in a way nothing else does.
 
-He has seen foxes in the forest since — glimpsed, always at the edge of vision, never clearly. Whether it is always the same fox he cannot say. Whether it is always a fox he cannot say.
+**The fox** — Japanese red foxes (*Vulpes vulpes japonica*) inhabit this mountain forest. Shūmaru has seen them — glimpsed, at the edge of vision, never clearly. Occasionally near the circle. Whether the fox he sometimes senses at the clearing's edge is always the same animal, always a natural animal, he cannot say. He does not pursue the question. He notes it, as he notes everything, and leaves it unresolved.
 
-The old proverb: *the fox fares best when he is cursed*. Be polite to foxes. You cannot be sure which kind you are meeting.
-
-Shūmaru knows this proverb. He thinks of it sometimes when he is sitting on his stone.
+On the winter solstice morning, descending through the cryptomeria after leaving the poem, he may glimpse a fox at the forest's edge. He does not stop. He does not look back. He notes it. He keeps walking.
 
 ---
 
