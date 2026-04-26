@@ -298,6 +298,140 @@ Outside the window the moss was very green in the summer light. Neither of them 
 
 ---
 
+## V.
+
+The summer deepened the way mountain summers do — not gradually but suddenly, the heat arriving one morning as a different quality of air, the forest closing around the estate as if the cryptomeria had moved inward overnight. The valley below was invisible most days now, not with the mist of spring mornings but with the dense haze of summer, the far slopes dissolved into a whiteness that was not mist and not cloud but simply the season's particular erasure of distance.
+
+The estate's rhythm adjusted without being asked. Lessons moved to the cooler hours of the morning. Martial training relocated outdoors — archery in the long shadow of the western wall in the early afternoon, the bow's release producing its familiar sound in the thick summer air. Shūmaru's form had improved through the spring; Gen'nosuke had noticed this and said nothing about it, which meant he approved. The riding master extended the morning routes, taking Shūmaru along the track that followed the estate's lower boundary, through stands of bamboo and past the edge of the farming land.
+
+From horseback Shūmaru could see the rice paddies in the valley — green and dense, the rows indistinguishable from this height into a single sheet of color, the farmers moving through them in their wide-brimmed hats. He watched them from the mare's back with his usual attention. They belonged to a world he knew almost nothing about. The mare walked steadily beneath him, unbothered by his observation.
+
+In the evenings the household bathed in order. The hinoki tub held its warmth well — the cedar smell and the steam filling the small bathing room, the day's accumulated heat of the body meeting the heat of the water and becoming something different, cleaner. Shūmaru sat in the deep tub with his knees bent and his chin at the water's level and looked at the grain of the cypress planking and thought about nothing in particular, which was its own kind of thinking.
+
+He went to the circle several times each week. The stream ran lower than in spring — the snowmelt long finished, only the mountain's deep reserves feeding it — but colder than the air, the stones of the bed visible with unusual clarity in the summer light. He sat on his stone. He put his hand in the water. He watched the light on the dacite columns change through the morning hours, the shadow moving precisely, the formation tracking the sun's arc in a way that seemed too exact for accident.
+
+He had begun to understand what Gen'nosuke had meant about the solstice.
+
+He said nothing about this. He sat with it the way he sat with everything.
+
+The lessons continued. The conversations between them had shifted in some quality that Shūmaru found difficult to name — not warmer exactly, not more or less formal, but more precise, as if both of them were now speaking with a shared awareness of what they were not saying. Gen'nosuke offered a kōan one afternoon without preamble, in the middle of a passage they had been translating from the Analects:
+
+*A monk asked Zhaozhou: Does a dog have Buddha nature? Zhaozhou said: Mu.*
+
+Shūmaru set down his brush. He considered the character — 無, *mu*, nothingness, the void, the answer that was not an answer. Then he picked up his brush and continued copying. He did not ask what it meant. Gen'nosuke did not explain.
+
+That evening, lying in the heat beneath a thin summer cover, Shūmaru thought about *mu* and about the stone columns and about what it meant for a circle of stones to have been built facing a specific dawn in the year. The question and the kōan seemed to him to be related in a way he could not quite articulate. Both were pointing at something that thinking about could not reach. Both required a different approach — the approach of simply waiting, in the right place, at the right time, without deciding in advance what you would find.
+
+He was not thinking about the solstice deliberately. He simply noticed, at some point in the summer's progression, that it was coming.
+
+---
+
+The last day of the sixth month came with the particular formality that the household brought to all ceremonial occasions. The *kannushi* arrived from the castle town before midday — a middle-aged man in white robes, his manner professional, his relationship to the sacred somewhat managerial, which Shūmaru noted without judgment. The man served many shrines in the district. His relationship to any one of them was necessarily partial.
+
+The *chinowa* had been constructed at the torii gate the previous day — a large ring of woven cogon grass, taller than Ume, the twisted stems giving off a green vegetable smell in the summer heat. Paper streamers hung from it in the still air. The foxes flanked it on either side, their mossy patience unchanged.
+
+The household assembled at the shrine in order. Ume first — managing the father's absence with her characteristic completeness, as if she had always been the household's center and his presence merely occasional decoration. Then Mitsumaru, filling his place in the sequence with the easy confidence of someone who understood the social world and was comfortable in it. Then Shūmaru.
+
+He approached the *chinowa*.
+
+Left, right, left — the prescribed pattern, the body moving through the grass ring three times in the figure-eight path the rite required. The woven grass was at the level of his chest. He had to duck slightly to pass beneath it, the coarse stems brushing his hair. The smell was intense at this closeness — green and sharp and something beneath the green, older, the smell of the earth the grass had grown from.
+
+On the far side of the ring the shrine was the same as always. The offering box. The foxes. The rope. The small sanctuary whose doors were kept closed. He had stood here hundreds of times.
+
+He made his offering. He stood for a longer moment than usual. The *kannushi* was reciting behind him — the formal words of the purification, the language archaic and formulaic, designed for repetition rather than meaning. Shūmaru listened to it the way he listened to the forest sounds: aware of it as texture rather than content.
+
+Something in the air was different. Or he was different, on this side of the ring. He could not say which.
+
+The ceremony concluded. The household returned to the house. The *kannushi* accepted his fee and his meal and departed with professional politeness. The evening proceeded normally — the bath, the meal, the household's evening sounds, Gen'nosuke's shakuhachi beginning somewhere in the deeper passages of the house, the notes arriving faint and deliberate through the corridors.
+
+Shūmaru lay on his futon in the summer heat and listened.
+
+He was asleep before the first gray of dawn.
+
+He woke before the first gray of dawn.
+
+The waking was complete and immediate — no gradual return, no interval of not-quite-consciousness. Simply: dark, and then awake, as if he had been waiting just below sleep for a signal he had not known he was waiting for.
+
+He lay still for a moment. The house was entirely quiet — a different quiet from the ordinary pre-dawn quiet, deeper, without even the settling sounds the timbers usually made. The cicadas had not yet begun. The frog-sound from the valley was absent. The only sound was the very faint movement of air through the cryptomeria — barely audible, more suggested than heard.
+
+He rose.
+
+---
+
+## VI.
+
+He dressed in the dark, by habit and touch. The corridor was black, the household sealed in sleep. He moved through it without sound, past Gen'nosuke's closed screen — no incense yet, the tutor not yet risen — through the main passage, out onto the veranda.
+
+The sky was not gray. It was the precise blue-black of the hour before any light appears — not dark exactly, but not beginning to lighten either. The stars were present still, more of them than could be seen from inside the estate's lamplight, a density of them that the summer sky never quite extinguished but that the hour made apparent. He stood on the veranda stone and looked at them for a moment.
+
+Then he crossed the garden, its gravel pale in the starlight, the pond's surface absolutely still and reflecting a compressed version of the sky above. He passed the stone lantern. He passed the shaped pines, their trained forms dark against the garden's paleness. He reached the edge where the gravel gave way to moss, and felt the small familiar decision of the threshold, and stepped across it into the trees.
+
+The forest was very dark. He moved by memory rather than sight — the path's first section known so exactly that darkness changed nothing about it. His feet found the spaces between roots, the level ground between the jutting stones, the slight depression before the path's single bend. Around the bend the shrine came not into view but into presence — he felt it before he could see it, the dark shape of the torii gate, the rope's pale streamers hanging still.
+
+He did not stop at the shrine this morning. He passed it — not quickly, not disrespectfully, simply passing — and continued up the slope into the trees above.
+
+The forest above the shrine was darker than the forest below. The canopy was higher and more complete. He moved through it with care, the sounds of his passage very small in the surrounding silence. The path that existed up here was not a path — only a set of remembered spaces between the trees, the ground he had crossed enough times to know. His feet found it anyway.
+
+Then he heard the stream.
+
+It was different this morning. Not in volume — the summer-low water was the same — but in quality, the sound of it arriving with an unusual clarity in the pre-dawn air, as if the air itself were more transparent. He followed it upward. The ground flattened. The canopy opened.
+
+He stopped at the clearing's edge.
+
+The sky above the gap in the trees was beginning to change — not yet light, but the quality of the darkness had altered, the blue-black deepening toward something that was almost color at its eastern edge, a line barely distinguishable from the dark above it. The dacite columns were invisible against the sky behind them. The stream's sound was very clear.
+
+And in the clearing, moving between the stones in the pre-dawn dark, a figure.
+
+He did not move. He did not breathe in any way that would have been audible. This too was simply what his body did — not a decision, not a practiced skill, simply the completeness of his attention producing its natural stillness.
+
+The figure moved slowly. Its arms were raised in a particular way — the elbows level with the shoulders, the forearms angled upward, the hands held with a precision that suggested each position had a name. The movement was not dance as he understood dance — it was slower, more deliberate, each position held for a moment before the body moved to the next. The feet moved in a pattern he could not quite resolve from where he stood, the grass and stones making no sound beneath them.
+
+The mist had come in from somewhere — not the valley mist, which had not reached this height, but something local to the clearing, a low haze that lay at the level of the stones and softened the figure's lower half. He could not be entirely certain of what he was seeing. The mist and the pre-dawn dark and the distance between the tree line and the stones combined into a uncertainty that was not confusion — he was not confused — but simply the honest condition of seeing something that was at the edge of what seeing could do.
+
+He watched.
+
+The figure turned in its slow pattern. Arms changing position. The body tracing something in the air that he felt the weight of without being able to name its meaning.
+
+The sky above the gap in the canopy was changing faster now — the eastern edge becoming something that was definitely color, not yet light but the promise of it, a warmth entering the blue-black that was not warmth yet but its announcement. He was aware of the stone columns behind the figure, becoming visible by degrees as the sky behind them grew, their geometric precision emerging from the dark as if the light were carving them out of it.
+
+The movement stopped.
+
+The figure was still.
+
+In the clearing, in the mist, in the last moment before the solstice sun arrived at the horizon that the circle's builders had built to receive it.
+
+Then — without turning — the figure spoke. The words were very quiet, and the stream's sound was between them, and the mist was between them, and Shūmaru never afterward was entirely certain what had been said and what had been the quality of the silence around the words. He held what he heard the way he held everything — without grasping, without pushing away. He did not move.
+
+The eastern sky broke open.
+
+The light came first to the top of the dacite columns — the dark stone catching it and for a moment holding a quality that was not quite gold and not quite white, something between the two, a color that existed only in that first instant of the solstice sunrise and then was immediately something else. The columns were fully visible now, their geometry complete, the precise hexagonal facets throwing the new light in specific directions. The mist in the clearing glowed.
+
+And when he looked at the place where the figure had been, there was no figure.
+
+The stones lay in their arc. The stream ran past them. The light moved across the clearing's grass in the way light moves when it has been exactly awaited — not arriving, simply becoming present, as if it had always been there and the dark had only temporarily obscured it.
+
+Shūmaru stood at the clearing's edge for a long time.
+
+He did not go to his stone. He did not approach the formation. He stood where he was, at the edge of the clearing, in the trees, and looked at the light on the stones and the stream and the empty grass where the figure had been. He was aware that he was cold — the pre-dawn chill still present despite the solstice's warmth beginning — and that his feet were wet with the dew on the path's moss, and that somewhere below the household was still sleeping, and that the day would begin as days always began, and that none of this touched what he was carrying.
+
+He turned and walked back through the cryptomeria.
+
+At the shrine he stopped. He stood before the foxes for a moment, their weathered faces patient and unhurried, the mossy crevices of their features offering nothing and withholding nothing. He did not make an offering. He simply stood.
+
+Then he went down through the garden, across the gravel, back to the house.
+
+In the corridor the smell of Gen'nosuke's incense reached him — sandalwood, very faint, meaning the tutor had risen in the time Shūmaru had been in the forest. He passed the closed screen without stopping.
+
+In his room he sat at the writing desk. He did not open the inkstone case. He sat with his hands in his lap and looked at the light coming through the shōji — the full summer morning light now, warm and direct, the day properly begun.
+
+He held what he had seen without examining it. He had learned, over the course of a summer, that certain things required this — required being held without examination, allowed to rest in the mind's quietest place, where they might eventually speak in their own time and terms rather than his.
+
+He sat for a long time.
+
+Then he heard his mother's voice in the passage — something ordinary, something about the morning meal — and he rose, and the day continued, and he carried what he carried, and it was enough.
+
+---
+
 ## IV.
 
 He took Gen'nosuke to the circle on a morning in late summer, when the forest was at its fullest and the path between the cryptomeria was deep in shadow even at mid-morning. They went after the lesson had ended — not announced, not planned beyond what had been agreed in a single nod weeks before. Shūmaru rose from his desk and Gen'nosuke followed.
@@ -380,7 +514,7 @@ He sat with it the way he sat with everything — without grasping, without push
 
 After a time Gen'nosuke said: *The direction the circle faces.*
 
-*East*, Shūmaru said. *I told you.*
+*East*, Shūmaru said. *I told you.helpless*
 
 *Yes.* Another pause. *There are stone circles in the northern provinces that face the summer solstice sunrise. The center of the circle aligns with the point where the sun rises on the longest day. The circle was built for that morning. Everything points toward it.*
 
